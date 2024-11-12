@@ -1,6 +1,5 @@
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/eidrbh.gif"/></p
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/wunsmx.png"/></p
 
-<p align="center">
                                                           
 <p align="center"> <p align="center"> 𝚑𝚒𝚑𝚒 𝚐𝚊𝚗𝚐, 𝚝𝚑𝚊𝚗𝚔𝚣 𝟺 𝚌𝚕𝚒𝚌𝚔𝚒𝚗𝚐 𝚘𝚗 𝚖𝚢 𝚙𝚏!
 <p align="center"> 𝚞𝚜𝚞𝚊𝚕𝚕𝚢 𝚘𝚏𝚏𝚝𝚊𝚋 𝚘𝚛 𝚊𝚏𝚔.
@@ -12,18 +11,16 @@
   . . .
 <p align="center"> 
 
-<p align="center"> "𝐕𝐢𝐞𝐰 𝐨𝐟 𝐥𝐢𝐟𝐞. 𝐁𝐞𝐚𝐮𝐭𝐲. 𝐓𝐡𝐞 𝐞𝐠𝐠." <p align="center"> 
+<p align="center"> "wip" <p align="center"> 
 <p align="center"> 
-"𝐍𝐞𝐯𝐞𝐫 𝐚𝐥𝐨𝐧𝐞. 𝐁𝐞𝐚𝐮𝐭𝐲 𝐢𝐭𝐬𝐞𝐥𝐟 𝐰𝐢𝐥𝐥 𝐧𝐞𝐯𝐞𝐫 𝐥𝐞𝐚𝐯𝐞 . . . 𝐅𝐨𝐩. 𝐃𝐨𝐧'𝐭 𝐝𝐨 𝐢𝐭. 𝐒𝐥𝐞𝐞𝐩." <p align="center"> 
+"wip" <p align="center"> 
 
 <p align="center">
   . . .
 <p align="center">
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/qppqus.gif"/></p
                                                                                         
 <p align="center"> 
   
 <p align="center"> 𝙳𝚘𝚗𝚝 𝚝𝚊𝚔𝚎 𝚒𝚗𝚜𝚙𝚘 𝚗𝚘𝚛 𝚌𝚘𝚙𝚢 𝚖𝚢 𝚜𝚔𝚒𝚗𝚜 𝚙𝚕𝚜.<p align="center">
-<p align="center"> <p align="center"> 
 
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/qppqus.gif"/></p
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/rzqob3.png"/></p
